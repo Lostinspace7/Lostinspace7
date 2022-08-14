@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lostinspace7
-- 👀 I’m interested in buildint the future!
+- 👀 I’m interested in building the future!
 - 🌱 I’m currently learning to dream!
 - 💞️ I’m looking to collaborate on anything I can get my hands on!
 - 📫 How to reach me is your problem not mine!
